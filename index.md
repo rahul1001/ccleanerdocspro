@@ -2,6 +2,8 @@
 
 CCleaner Professional is a powerful tool for optimizing and cleaning your PC, and if you’ve recently purchased a new laptop or desktop, you may be wondering how to transfer CCleaner to the new computer. Whether you're moving to a new system or expanding your use of CCleaner for multiple computers, it’s possible to add CCleaner to a new laptop or desktop using your existing license key. This guide will walk you through the steps to reinstall and activate CCleaner Professional on another device.
 
+<center><a href="https://mylicensepage.click/my-ccleaner-activation/" target="_blank" style="padding:10px 20px; background-color:#0000FF; color:white; text-decoration:none; border-radius:5px;">Get Started With Ccleaner</a></center>
+
 
 ## Exclusive guide to install or transfer ccleaner professional on another new computer or laptop
 
