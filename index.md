@@ -53,7 +53,7 @@ After the program is installed, you’re ready to activate CCleaner Pro on your 
 
 ### Step 4: Activate CCleaner Pro License Key
 
-To unlock the full features of CCleaner Professional, you need to activate it using your valid license key.
+[To unlock the full features of CCleaner Professional, you need to activate it using your valid license key.Link Text](https://ccleanerdocspro.readthedocs.io/)
 
 **To activate CCleaner Pro license key:**
 
